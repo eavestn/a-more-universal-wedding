@@ -1,6 +1,6 @@
 ## A Marriage
 
-**Gathering**
+### Gathering
 
 _The Celebrant says_ **F**riends, we, NN., come together to witness the joining together of this [_man_] and
 this [_woman_] - the union of [_husband and wife_] in heart, body, and mind. Today, 
@@ -9,7 +9,7 @@ prosperity and adversity. Marriage, therefore, is not to be entered into
 unadvisedly or lightly, but reverently and deliberately. And it is for this reason that we
 gather today.
 
-**The Declaration of Consent**
+### The Declaration of Consent
 
 _The Celebrant says to the [woman]_
 
@@ -44,7 +44,7 @@ _People_
 
 We Will.
 
-**The Marriage**
+### The Marriage
 
 _The [Man], facing the [woman] and taking [her] right hand in [his], says_
 
@@ -69,11 +69,11 @@ May this ring forever be a sign of the vows by which
 this man and this woman have bound themselves to each
 other. _So be it_.
 
-**Reading**
+#### The Readings
 
 _Both [Man] and [Woman] will respectively read, in turn, their chosen readings._
 
-**The Exchange of Rings**
+#### The Exchange of Rings
 
 _The giver places the ring on the ring-finger of the other's hand and says_
 
