@@ -2,7 +2,9 @@
 
 ### Gathering
 
-_The Celebrant says_ **F**riends, we, NN., come together to witness the joining together of this [_man_] and
+_The Celebrant says_ 
+
+**F**riends, we, NN., come together to witness the joining together of this [_man_] and
 this [_woman_] - the union of [_husband and wife_] in heart, body, and mind. Today, 
 they marry for their joy; for the help and comfort given one another in 
 prosperity and adversity. Marriage, therefore, is not to be entered into 
@@ -93,5 +95,57 @@ _People_
 
 So be it.
 
+### The First Blessing
 
+_The Celebrant says_
 
+Let us be of one mind.
+
+Look with favor upon the world and especially upon this man and this woman whom we
+make one. _So be it_.
+
+Give them wisdom and devotion in the ordering of their
+common life, that each may be to the other a strength in need, a
+counselor in perplexity, a comfort in sorrow, and a companion
+in joy. _So be it_.
+
+Grant that their wills may be so knit together that they may grow in love
+and peace with one another all the days of their life. _So be it_.
+
+Give them grace, when they hurt each other, to recognize and
+acknowledge their fault, and to seek each other's forgiveness. _So be it_.
+
+Make their life together a sign of love to this broken world, that unity may overcome estrangement,
+forgiveness heal guilt, and joy conquer despair. _So be it_.
+
+Give them such fulfillment of their mutual affection that they
+may reach out in love and concern for others. _So be it_.
+
+Grant that all married persons who have witnessed these
+vows may find their lives strengthened and their loyalties
+confirmed. _So be it_.
+
+#### The Second Blessing
+
+_The people remain standing. The husband and wife join hands, and the Celebrant
+says one of the following_
+
+Pour out the abundance of blessings upon this
+man and this woman. Defend them from every enemy. Lead
+them into all peace. Let their love for each other be a seal
+upon their hearts, a mantle about their shoulders, and a
+crown upon their foreheads. Keep them in their work and in
+their companionship; in their sleeping and in their waking; in
+their joys and in their sorrows; in their life and in their death. _So be it_.
+
+_or this_
+
+Bless this man and this womanthat they may so love, honor, and cherish each other
+in faithfulness and patience and in wisdom,
+that their home may be a haven of blessing and peace. _So be it_.
+
+_The husband and wife still kneeling, the Celebrant adds_
+
+Let the World keep you; favor you; and fill you with all spiritual benediction and
+grace; that you may faithfully live together in this life, and -
+in the age to come - have life everlasting. _So be it_.
