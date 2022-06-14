@@ -1,3 +1,5 @@
+## A Marriage
+
 **Gathering**
 
 _The Celebrant says_ **F**riends, we, NN., come together to witness the joining together of this [_man_] and
