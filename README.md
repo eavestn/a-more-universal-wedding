@@ -95,7 +95,9 @@ _People_
 
 So be it.
 
-### The First Blessing
+### The Blessings
+
+#### The First Blessing
 
 _The Celebrant says_
 
